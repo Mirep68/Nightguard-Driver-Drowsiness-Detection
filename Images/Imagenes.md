@@ -4,7 +4,8 @@
 
 ---
 
-<img width="720" height="1280" alt="WhatsApp Image 2026-06-22 at 5 20 34 PM" src="https://github.com/user-attachments/assets/a7715093-9211-420f-878e-c56f045f11ab" />
+<img width="1280" height="720" alt="WhatsApp Image 2026-06-22 at 5 20 34 PM" src="https://github.com/user-attachments/assets/eccf2c1a-1b71-4f9b-a9a6-9c6fd8e03e6f" />
+
 
 ---
 
